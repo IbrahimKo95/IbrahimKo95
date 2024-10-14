@@ -37,7 +37,7 @@ Je travaille sur différents projets de développement web, en me concentrant su
 ### 📫 Me contacter
 
 - Email : [ibrahkonate95@gmail.com](mailto:ibrahkonate95@gmail.com)
-- LinkedIn : [Lien à venir !]
+- LinkedIn : [Ici](in/ibrahim-konat%C3%A9-22620b262)
 
 ---
 
